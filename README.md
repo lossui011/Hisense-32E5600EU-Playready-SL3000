@@ -1,2 +1,5 @@
-# works for amazonprime 1080p - disney+ 4k - appletv+ 4k - max 4k
-contact lossui011@proton.me to get the best deal now
+# DISNEY+ 4K CERTIFICATE ABUSE
+# WEAK TEE IMPLANTATION
+# INSECURE DRM SYSTEM
+# PLAYREADY HEY!
+# FOR EDUCATIONAL PURPOSE
